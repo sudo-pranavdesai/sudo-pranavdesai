@@ -47,9 +47,9 @@
 
 ### 📫 Let's Connect
 
-- 🔗 [LinkedIn](https://www.linkedin.com/in/pranav-desai/)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/pranavdesai16/)
 - 💼 [Portfolio Website](#) *(coming soon!)*
-- 📧 Email: desai.pranav21@gmail.com
+- 📧 Email: desaipranav274@gmail.com
 
 ---
 
